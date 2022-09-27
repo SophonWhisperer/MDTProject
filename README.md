@@ -1,3 +1,3 @@
 "# MDTProject" 
 
-[x] Aparna Chaganty (:fire: :fire:)
+[x] Aparna Chaganty (:fire: :smiley:)
