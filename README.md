@@ -1,3 +1,3 @@
 "# MDTProject" 
 
-[x] Aparna Chaganty :fire: :D:D:D:D
+[x] Aparna Chaganty :+1::sparkles:
